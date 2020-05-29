@@ -1,1 +1,0 @@
-# kertijayancom.github.io
